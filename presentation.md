@@ -19,7 +19,7 @@ Ce que j'aime faire :
  - M'occuper de ma jungle (si, si, on dirait une jungle ici !) :cactus:
  - Tricoter :gift:
  - Cuisiner :cookie:
- - Etc.
+ - Etc. 
 
 ## *Le "contexte" =P*
 
