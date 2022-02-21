@@ -14,7 +14,7 @@ Ce que j'aime faire :
  - Coder, ça tombe bien :computer:
  - Faire du sport (cardioboxe, boxe sur sac, crosstraining) :bomb:
  - Jouer du piano :notes:
- - Dessiner 	📝 :pencil:
+ - Dessiner :pencil:
  - Coudre :kimono:
  - M'occuper de ma jungle (si, si, on dirait une jungle ici !) :cactus:
  - Tricoter :gift:
